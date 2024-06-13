@@ -1,3 +1,19 @@
+[FAQs](https://github.com/debeatzgh1/Digital-store-/issues/13)
+
+[Home page](https://github.com/debeatzgh1/Digital-store-)
+[See what's New](https://github.com/debeatzgh1/Digital-store-/discussions/18)
+
+[Request New features](https://github.com/debeatzgh1/Digital-store-/discussions/11)
+
+[Online business tools and ideas](https://github.com/Digital-creators-hub/Online-business-tools-and-ideas-for-startups-)
+
+[Our products and services](https://github.com/debeatzgh1/our-products-and-services-)
+
+[Tech business tools and ideas](https://github.com/debeatzgh1/Tech-tools-and-ideas-for-startups)
+
+[Learn more about us](https://gist.github.com/debeatzgh1/98cf571e21881f4a39560503988861d3)
+
+
 Hello there. Let's dive into the tech business tools and ideas available on Debeatzgh's Digital store. 
 
 On Debeatzgh's Digital store, you'll discover a plethora of tech business tools and ideas that can fuel your entrepreneurial journey and help you thrive in the digital landscape.
