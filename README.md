@@ -1,6 +1,7 @@
 [FAQs](https://github.com/debeatzgh1/Digital-store-/issues/13)
 
 [Home page](https://github.com/debeatzgh1/Digital-store-)
+
 [See what's New](https://github.com/debeatzgh1/Digital-store-/discussions/18)
 
 [Request New features](https://github.com/debeatzgh1/Digital-store-/discussions/11)
