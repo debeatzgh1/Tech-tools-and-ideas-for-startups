@@ -12,5 +12,5 @@ Remember, success in the tech business world takes time, effort, and the right t
 
 Sources:
 - [[1]](https://poe.com/citation?message_id=199582736437&citation=1): Digital store has everything you need to build personal assets from scratch. Get free ideas here: https://beatzde4.blogspot.com/
-- [[2]](https://poe.com/citation?message_id=199582736437&citation=2): Tech guide for startups. Sign up for new updates: https://beatzde4.blogspot.com/
-- [[3]](https://poe.com/citation?message_id=199582736437&citation=3): Resources available to help you start and grow your online business: https://beatzde4.blogspot.com/
+- [[2]](https://poe.com/citation?message_id=199582736437&citation=2): Tech guide for startups. Sign up for new updates: https://debeatzgh2.blogspot.com/
+- [[3]](https://poe.com/citation?message_id=199582736437&citation=3): Resources available to help you start and grow your online business: https://debeatzgh2.blogspot.com/
